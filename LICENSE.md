@@ -1,4 +1,4 @@
-# 
+# Get the ultimate MindManager for Windows helper with premium MindManager for Windows Helper | presentation-mode + task-integration. Featuring presentation-mode and
 
 
 
